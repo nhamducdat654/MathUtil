@@ -14,5 +14,7 @@ TDD and Unit Test technic )
 ## Connect me via
 1. [Facebook](https://www.facebook.com/profile.php?id=100013032335773)
 2. [GitHub](https://github.com/nhamducdat654)
+3. [Instagram](https://www.instagram.com/ducdat2406__/)
+4. [Email](ducdat2406@gmail.com)
 
-### © 2020 by Đức Đạt
+### © 2020 by Đức Đạt | FPT University HCMC
